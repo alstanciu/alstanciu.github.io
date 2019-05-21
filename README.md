@@ -1,2 +1,2 @@
 ## Contact
-> Buchares, Romania | agstanciu@gmail.com
+> Bucharest, Romania | agstanciu@gmail.com
